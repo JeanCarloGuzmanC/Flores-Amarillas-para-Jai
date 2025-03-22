@@ -3,5 +3,4 @@
 No creas que te quedaste como expectadora mi niña linda 💜
 
 
-Miralo aqui 👇👇👇
-https://jeancarloguzmanc.github.io/Flores-Amarillas-para-Jai/
+Miralo aqui👉 https://jeancarloguzmanc.github.io/Flores-Amarillas-para-Jai/
